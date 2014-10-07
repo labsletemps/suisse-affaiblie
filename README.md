@@ -1,4 +1,4 @@
-La Suisse affaiblie
+La Suisse affaiblie (letemps.ch - septembre 2014)
 ==================
 
 ![](http://www.letemps.ch/rw/Le_Temps/Quotidien/2014/09/24/Suisse/Textes/suisse--672x359.jpg)
